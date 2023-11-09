@@ -25,3 +25,4 @@ Annonçant fièrement la charge du micro d'argent
 En plein cœur de la bataille
 Je sème la terreur quand je frappe d'estoc et de taille
 Je sens l'esprit du félin m'envahir
+À ce stade seul le sang me procure du plaisir
