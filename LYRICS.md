@@ -16,3 +16,4 @@ Le souffle des quatre vents décuple ma puissance
 De longs mois de travail ont exacerbé mes sens
 J'ai créé un déséquilibre interne volontairement
 Afin que le côté Yang soit le dominant
+Les pieds solidement ancrés dans la Terre
