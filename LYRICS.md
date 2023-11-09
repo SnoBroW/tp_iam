@@ -28,6 +28,7 @@ Donc je me dresse dans des cliquetis, bardé d'armes
 J'ai une armée entière sous le charme
 Prête à mourir, à la gloire de mon étendard
 J'ai rassemblé la clique des valeureux guerriers barbares
+Dare-dare j'ai envoyé paître les lettres
 
 L'École du micro d'argent
 L'École du micro d'argent
