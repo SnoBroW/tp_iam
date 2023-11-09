@@ -10,3 +10,4 @@ Assis en tailleur, voilà des heures que je médite
 Sur ma montagne et je n'arrive pas à faire le vide
 Je focalisesur le diaphragme, j'augmente mon énergie
 Réveille la bête qui dans mon âme est tapie
+Je viens de terminer ma préparation mentale
