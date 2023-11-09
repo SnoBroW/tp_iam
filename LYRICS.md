@@ -29,15 +29,31 @@ Je sens l'esprit du félin m'envahir
 Mes griffes gravent les couleurs de l'Empire
 Plus grand que celui d'Alexandre dont je suis le défenseur
 
-
+L'École du micro d'argent
+L'École du micro d'argent
 Je représente
-
+L'École du micro d'argent
+L'École du micro d'argent
 Je représente
-
+L'École du micro d'argent
+L'École du micro d'argent
 Je représente
-
+L'École du micro d'argent
+L'École du micro d'argent
 Je représente
-
+L'École du micro d'argent
+L'École du micro d'argent
 Je représente
-
+L'École du micro d'argent
+L'École du micro d'argent
 Je représente
+L'École du micro d'argent
+L'École du micro d'argent
+
+L'École du micro d'argent
+L'École du micro d'argent
+
+Source : Musixmatch
+Paroliers : Ron Smith / Geoffroy Mussard / Eric Mazel / Pascal Jean Perez / Philippe Tristan Fragione / William Greene
+Paroles de L’École du micro d’argent © Cote Obscur
+
