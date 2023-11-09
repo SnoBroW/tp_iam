@@ -15,3 +15,4 @@ Ils vont goûter à l'incomparable style du Serval
 Le souffle des quatre vents décuple ma puissance
 De longs mois de travail ont exacerbé mes sens
 J'ai créé un déséquilibre interne volontairement
+Afin que le côté Yang soit le dominant
