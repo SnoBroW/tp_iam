@@ -25,6 +25,7 @@ Le troisième œil scrute le terrain, la tactique
 Physiquement, les déplacements furtifs
 De l'essence de mon esprit élabore les bases de ma stratégie
 Donc je me dresse dans des cliquetis, bardé d'armes
+J'ai une armée entière sous le charme
 
 L'École du micro d'argent
 L'École du micro d'argent
