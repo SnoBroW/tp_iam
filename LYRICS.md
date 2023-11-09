@@ -30,6 +30,7 @@ Prête à mourir, à la gloire de mon étendard
 J'ai rassemblé la clique des valeureux guerriers barbares
 Dare-dare j'ai envoyé paître les lettres
 Pourchassé les traîtres, selon l'enseignement de mes maîtres
+Sans relâche, je crache des cendres
 
 L'École du micro d'argent
 L'École du micro d'argent
