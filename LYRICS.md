@@ -22,6 +22,8 @@ Mon sabre scintille, je médite accroupi sous les branches d'un saule
 Pleure, je défends l'honneur de mon école, fils
 Le troisième œil scrute le terrain, la tactique
 À pratiquer, pour balayer l'ennemi, statique
+Physiquement, les déplacements furtifs
+De l'essence de mon esprit élabore les bases de ma stratégie
 
 L'École du micro d'argent
 L'École du micro d'argent
