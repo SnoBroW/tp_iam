@@ -18,3 +18,4 @@ J'ai créé un déséquilibre interne volontairement
 Afin que le côté Yang soit le dominant
 Les pieds solidement ancrés dans la Terre
 Je tire les dernières forces de la nature mère nourricière
+Je mène les troupes au combat pour défaire
