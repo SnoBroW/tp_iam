@@ -32,6 +32,7 @@ Dare-dare j'ai envoyé paître les lettres
 Pourchassé les traîtres, selon l'enseignement de mes maîtres
 Sans relâche, je crache des cendres
 Et poursuivrai les massacres jusqu'à ce que le nom d'AKH soit légende
+Car le soldat, guerrier alpha est adroit
 
 L'École du micro d'argent
 L'École du micro d'argent
