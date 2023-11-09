@@ -18,6 +18,10 @@ L'École du micro d'argent
 L'École du micro d'argent
 L'École du micro d'argent
 
+Mon sabre scintille, je médite accroupi sous les branches d'un saule
+Pleure, je défends l'honneur de mon école, fils
+Le troisième œil scrute le terrain, la tactique
+
 L'École du micro d'argent
 L'École du micro d'argent
 
