@@ -22,3 +22,4 @@ Je mène les troupes au combat pour défaire
 Les guerriers en contre-plaqué de l'école du micro en bois
 Notre bannière flotte au sommet du Tsunami
 Annonçant fièrement la charge du micro d'argent
+En plein cœur de la bataille
