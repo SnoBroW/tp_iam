@@ -23,3 +23,4 @@ Les guerriers en contre-plaqué de l'école du micro en bois
 Notre bannière flotte au sommet du Tsunami
 Annonçant fièrement la charge du micro d'argent
 En plein cœur de la bataille
+Je sème la terreur quand je frappe d'estoc et de taille
