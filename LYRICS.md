@@ -20,3 +20,4 @@ Les pieds solidement ancrés dans la Terre
 Je tire les dernières forces de la nature mère nourricière
 Je mène les troupes au combat pour défaire
 Les guerriers en contre-plaqué de l'école du micro en bois
+Notre bannière flotte au sommet du Tsunami
