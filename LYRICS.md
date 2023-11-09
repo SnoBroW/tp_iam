@@ -13,4 +13,4 @@ Réveille la bête qui dans mon âme est tapie
 Je viens de terminer ma préparation mentale
 Ils vont goûter à l'incomparable style du Serval
 Le souffle des quatre vents décuple ma puissance
-De longs mois de travail ont exacerbémes sens
+De longs mois de travail ont exacerbé mes sens
