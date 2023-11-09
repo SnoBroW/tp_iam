@@ -34,6 +34,7 @@ Sans relâche, je crache des cendres
 Et poursuivrai les massacres jusqu'à ce que le nom d'AKH soit légende
 Car le soldat, guerrier alpha est adroit
 Et lance l'assaut là, sur l'école du micro en bois
+La bataille a débuté, tiens
 
 L'École du micro d'argent
 L'École du micro d'argent
