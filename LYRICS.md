@@ -27,6 +27,7 @@ De l'essence de mon esprit élabore les bases de ma stratégie
 Donc je me dresse dans des cliquetis, bardé d'armes
 J'ai une armée entière sous le charme
 Prête à mourir, à la gloire de mon étendard
+J'ai rassemblé la clique des valeureux guerriers barbares
 
 L'École du micro d'argent
 L'École du micro d'argent
