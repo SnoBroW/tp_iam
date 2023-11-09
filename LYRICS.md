@@ -37,6 +37,7 @@ Et lance l'assaut là, sur l'école du micro en bois
 La bataille a débuté, tiens
 Ce coup vient d'un expert à la guerre
 Vaillant praticien des arts martiens
+Délégué pour mettre un terme à ces horreurs
 
 L'École du micro d'argent
 L'École du micro d'argent
